@@ -1,4 +1,4 @@
-### Jackson Strauss Github
+### Welcome!
 
 Hello, my name is Jackson Strauss and I am currently a first-year mechanical engineering student at Washington University in St. Louis.
 
